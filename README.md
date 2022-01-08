@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @MUHAMMADAWAISBUTT
+- 👀 I’m interested in codding
+- 🌱 I’m currently learning java
+- 💞️ I’m looking to collaborate on java,DSA...
+- 📫 How to reach me is by my insta:@i.m.awais
